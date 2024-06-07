@@ -20,5 +20,5 @@ Como miembro activo de mi comunidad y equipo de trabajo, siempre busco maneras d
 ### Puedes contactarme
 ---
 - [Linkedin](https://www.linkedin.com/in/rosa-gomez-jimenez/)
-- [Gmail]rosa.gomezj28@gmail.com
-- [Discord]rosa.gomez
+- rosa.gomezj28@gmail.com
+  
